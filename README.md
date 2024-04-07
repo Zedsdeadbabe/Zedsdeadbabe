@@ -9,5 +9,5 @@
 <!---
 Zedsdeadbabe/Zedsdeadbabe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->Currently trying to learn flashloans, so I never have to work again, any help would be very welcomed. zedsdeadbabe@outlook.com
+--->Currently trying to learning flashloans, so I never have to work again, any help would be very welcomed. zedsdeadbabe@outlook.com
 Or even even send a package that works, to borrow and repay. I realize crypto and code changes constantly, mark the urgancy pls. In the mean time I know I will figure this out. Thanks.
